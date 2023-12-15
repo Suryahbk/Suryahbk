@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **Suryahbk8@gmail.com**
 
-- 📄 Know about my experiences [(https://drive.google.com/file/d/1ewZhekB2xcZfqfbsWR5JIik3-U3hXJul/view?usp=sharing)](https://drive.google.com/file/d/1ewZhekB2xcZfqfbsWR5JIik3-U3hXJul/view?usp=sharing)
+- 📄 Know about my experiences (https://drive.google.com/file/d/1ewZhekB2xcZfqfbsWR5JIik3-U3hXJul/view?usp=sharing)
 
 - ⚡ Fun fact **This is an embarrassing fact about me. But I haven't seen "The imitation game".**
 
